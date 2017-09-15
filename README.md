@@ -1,0 +1,2 @@
+# Plan
+Plany kółka informatycznegpo
